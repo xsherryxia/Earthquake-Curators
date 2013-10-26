@@ -12,4 +12,4 @@ Members Stats:
 | Alisha Agrawal    | 4th |  Stats/MCB|alisha791@berk|
 | Theresa Andrasfay (tandrasfay)|4th|Stats | tandrasfay@berk |
 | Jie Zhang| 4th |  Stats | jzhang980@berk |
-| | | |
+| Sherry Xia| 4th | Stats and Legal Studies| x_sherry_xia@berkeley.edu|
